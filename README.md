@@ -2,7 +2,7 @@
 - 👀 I’m interested in Programing, 3D and phontografy.  
 - 🌱 I’m currently learning python.
 - 💞️ I’m looking to collaborate on Idk.
-- 📫 How to reach me https://guns.lol/hussein
+- 📫 How to reach me 
 - 😄 Pronouns: he/him.
 - ⚡ Fun fact: I hate ignorance.
 
