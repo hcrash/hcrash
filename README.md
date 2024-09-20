@@ -1,4 +1,4 @@
-- 👋 Hi, I’m H21
+- 👋 Hi, I’m TXC21
 - 👀 I’m interested in Programing, 3D and phontografy.  
 - 🌱 I’m currently learning python.
 - 💞️ I’m looking to collaborate on Idk.
